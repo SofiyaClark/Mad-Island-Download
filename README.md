@@ -27,7 +27,7 @@ To experience Mad Island:
 
 1. Visit one of the official purchase links provided above.
 2. Complete the purchase process.
-3. Download and install the game through the respective platform.([Reddit][6])
+3. Download and install the game through the respective platform.
 
 Purchasing through official channels ensures you receive legitimate copies with updates and support.
 
